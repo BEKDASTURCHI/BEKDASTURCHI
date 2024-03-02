@@ -10,4 +10,4 @@ I like to travel a lot.
 <br>
 -📍 & nbsp; Current location: Tashkent, Uzbekistan.
 <br>
--💻 & nbsp; How to reach me: [@Bekdasturchi](https://telegram.com
+-💻 & nbsp; How to reach me: [@Bekdasturchi](https://telegram.com @Bekdasturchi
